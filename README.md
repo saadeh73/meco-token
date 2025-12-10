@@ -33,4 +33,7 @@
 ---
 
 ## 📬 تواصل
-سيتم إضافة الروابط الرسمية لاحقاً (X – Telegram – Website)
+(x). 
+https://x.com/MoniCoinMECO
+(telegram).
+https://t.me/monycoin1
