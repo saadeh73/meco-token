@@ -102,5 +102,5 @@ MECO مشروع بُني بالإرادة، الصبر، والعمل الحقي
 
 ---
 
-© 2025 — MECO Project  
+© 2025 — MECO token  
 Founder: Mohamed Saadeh
